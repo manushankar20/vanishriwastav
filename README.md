@@ -1,3 +1,3 @@
 moti bhaish
 ❤️
-https://manuyhankar.github.io/vanishriwastav/
+https://manyshankar.github.io/vanishriwastav/
